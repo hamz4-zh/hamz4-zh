@@ -25,7 +25,7 @@ Recent B.Sc. Artificial Intelligence graduate from Imam Abdulrahman Bin Faisal U
 ## Background
 
 - **B.Sc. Artificial Intelligence**, Imam Abdulrahman Bin Faisal University (IAU)
-- GPA: 4.48/5.0 (Second Honour Roll)
+- GPA: 4.52/5.0 (Second Honour Roll)
 
 ## Connect
 
